@@ -415,7 +415,7 @@ https://youtube.com/shorts/1MxKGMEFFR4?feature=share<br>
 -->
 
 <br><br><br>
-<h2><span class="yellow">2026Jun20、本屋さんに並ぶ図書と庭の薔薇、市内の公園から西の空のお月様まででした<br>Thank you for reading this far.</span></h2>
+<h2><span class="yellow">2026Jun21、サッカーW杯、日本vsチュニジア戦のレポートでした<br>Thank you for reading this far.</span></h2>
 <!--
 <br><br><br><br><br>
 <h2><span class="yellow">
